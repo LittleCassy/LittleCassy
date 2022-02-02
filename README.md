@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LittleCassy
-- 👀 I’m love horror games
+- 👀 I’m in love with horror games
 - 🌱 I’m currently learning Multi-Platform Development
 - 💞️ I’m not looking to collaborate.
 - 📫 How to reach me -> MD
