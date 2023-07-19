@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @LittleCassy
-- 👀 I’m in love with horror games
-- 🌱 I’m currently learning Multi-Platform Development
+- 👻 In love with horror games
+- 🔨 Working at Tagai Arts
+- 🌱 Currently learning some more Web stuff
 - 💞️ I’m not looking to collaborate.
 - 📫 How to reach me -> casandramarcado@gmail.com
 
