@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LittleCassy
 - 👻 In love with horror games
-- 🔨 Working at Tagai Arts
-- 🌱 Currently learning some more Web stuff
+- 🔨 Working at New Digital Talent
+- 🌱 Currently learning how to be a good teacher
 - 💞️ I’m not looking to collaborate.
 - 📫 How to reach me -> casandramarcado@gmail.com
 
